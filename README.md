@@ -1,2 +1,2 @@
 # engenhariasoft
-Atividade da aula
+Para mim a experiência de entrar em um curso que é voltado para uma área a qual terá grande abrangência no futuro se torna muito gratificante , além de participar e contribuir para a comunidade feminina de tecnológia. Minha experiência com os a parte academica do curso , vem sendo muito bom ,consigo me indentificar com a maioria dos professores , fico grata de aprender todo dia mais .
